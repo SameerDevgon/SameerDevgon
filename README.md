@@ -1,5 +1,5 @@
 
-- 📫 How to reach me watsapp 9717185759
+- 📫 let's talk watsapp me 9717185759
 
 <!---
 SameerDevgon/SameerDevgon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
